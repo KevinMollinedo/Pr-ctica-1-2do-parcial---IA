@@ -1,0 +1,1 @@
+# Pr-ctica-1-2do-parcial---IA
